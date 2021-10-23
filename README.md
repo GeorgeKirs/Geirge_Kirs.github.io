@@ -1,2 +1,2 @@
-# Geirge_Kirs.github.io
+# George_Kirs.github.io
 информация о животных 
